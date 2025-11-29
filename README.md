@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m study in Trisakti<br>🌱 I’m currently learning programming<br>⚡ Fun fact **I like a engine and electronic
+🔭 I’m study in Trisakti<br>🌱 I’m currently learning programming<br>⚡ Fun fact I like a engine and electronic
 
 
 ## 🌐 Socials:
